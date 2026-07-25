@@ -1,1 +1,0 @@
-# Yemerson Geovanny Par Guerra
