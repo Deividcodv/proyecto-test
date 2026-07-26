@@ -1,3 +1,3 @@
 Marcos Estuardo Lemus Meléndrez
 Analista
-Ninguna experiencia 
+Experiencia en documento de visión, requisitos y casos de uso 
